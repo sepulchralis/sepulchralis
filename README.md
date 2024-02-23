@@ -1,4 +1,11 @@
-BYI:
+**GEN INFO:**
+- collective name: sepulchre/sepulchral/sepulchralis (or whoever is fronting)
+- 18yo bodily
+- collective pronouns: he/hymn/it (varies person to person, ask if not in dn!)
+
+.
+
+**BYI:**
 - we are a fictive heavy system of about 60, give or take. usually it's just our mcyt alters on pt for some reason, but our host (henry) is usually in co!
 - you can ask to talk someone but we can't tell you with 100% certainty that they'll show up. you've got maybe a 40% chance of someone actually coming to front if you ask
 - that being said, do NOT under any circumstances try to purposefully trigger anyone out, especially if they're IWC/IWEC (such as traumaholders, syskids and littles, or persecutors/prosecutors/etc) we WILL block you if you try that shit
@@ -10,7 +17,7 @@ BYI:
 
   .
 
-DNI:
+**DNI:**
 - anti neopronouns/xenogenders
 - anti educated self diagnosis
 - if you are in any way involved with shit like r/fakedisordercringe, get a life dude
@@ -23,7 +30,7 @@ DNI:
 
 .
 
-SOCIALS:
+**SOCIALS:**
 - tiktok: chesapeakke
 - discord: chesapeakke
-  feel free to message m=us we LOVE making friends
+  feel free to message us we LOVE making friends
